@@ -1,5 +1,5 @@
 # 💫 About Me:
-😶‍🌫️😶‍🌫️Hello! My name is Alhmedov Rashid  
+😶‍🌫️😶‍🌫️Hello! My name is Akhmedov Rashid  
 I am a junior Frontend Developer💻 from Russia, Dagestan🏔️🏔️  
 
 ## 🌐 Socials:
